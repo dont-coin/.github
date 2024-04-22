@@ -1,4 +1,4 @@
-## $DONT Coin 👋
+## $DONT Coin 🪙
 
 The concept is as simple as the door of a refrigerator: the more you do nothing, the more coins you gather. Think about it, it's like economic theory in reverse!
 
