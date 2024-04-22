@@ -6,6 +6,8 @@ From childhood, they clamp you down—work harder and you'll achieve your dreams
 
 It's straightforward—your path to victory, your chance to stay sane in a world obsessed with productivity, is to do nothing!
 
+Join us on [Telegram](https://t.me/+uao8FKAnbp5jNGEy)
+
 <!--
 
 **Here are some ideas to get you started:**
